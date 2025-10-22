@@ -1,4 +1,4 @@
-### Hi there, I'm Oscar - aka [otinocop] 👋 
+### Hi there, I'm Oscar - aka [OscarTinoco1] 👋 
 
 ## I'm a Software Engineer and Fullstack Developer!
 
